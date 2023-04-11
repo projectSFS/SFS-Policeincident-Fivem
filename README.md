@@ -4,7 +4,7 @@
 
 **CLICK HERE TO GET AS ASSET ON**
 
-```Tebex Store``` : https://sfsproject.tebex.io/package/5624171
+```Tebex Store``` : https://sfsproject.tebex.io/package/5624171 ```free```
 
 ```YouTube```: https://www.youtube.com/watch?v=BamImEV9gZU
 
